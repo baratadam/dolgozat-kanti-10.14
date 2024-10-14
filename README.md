@@ -1,0 +1,1 @@
+# dolgozat-kanti-10.14
